@@ -5,6 +5,7 @@
 - 📫 How to reach me: GusAutosport@outlook.lv
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I use my laptop as station for all computer tasks
+- (I also love music band "Skillet")
 
 <!---
 GusAutosport/GusAutosport is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
