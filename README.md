@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GusAutosport
+- 👋 Hi, I’m Techno_Echo_Gus 
 - 👀 I’m interested in mechanical projects
 - 📫 How to reach me: GusAutosport@outlook.lv
 - 😄 Pronouns: He/Him
